@@ -1,0 +1,2 @@
+        ALX-HIGHER LEVEL PROGRAMMING
+    Pthon everything is object[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[Py[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C.
